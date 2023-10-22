@@ -59,7 +59,7 @@ http://bbs.ipfei.com/forum.php?mod=forumdisplay&fid=37
 
 **有购买意愿的朋友也可以加微信好友咨询，微信小号，可能回复不会太及时**
 
-![微信截图_20230306154434](https://user-images.githubusercontent.com/5563148/223048985-4cac05cb-acf0-4f04-aad5-1c3dcec609d0.png)
+![微信截图_20230306154434](https://raw.githubusercontent.com/chenchuanwena/chatgpt_commercial/2992205a2e6df2d26f8bec5d23b2231dbe23f055/AI商业版.jpeg)
 
 
 
